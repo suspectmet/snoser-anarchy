@@ -2,7 +2,8 @@
 *🛒 Как приобрести? Цена пакетов: 1000 / 1599 / 2699 / 4999* 
 
 ## АКТУАЛЬНЫЙ КАНАЛ (https://t.me/anarchynewss) И АДМИН (https://t.me/anarchyworlds), ЕСЛИ ЗАБЛОКИРУЮТ 
-<img width="1536" height="1024" alt="photo_2026-04-24_20-38-01" src="https://github.com/user-attachments/assets/3228cfc6-3643-4abd-8d5f-80b75e3e9f8b" />
+<img width="1402" height="788" alt="обложка anarchyland" src="https://github.com/user-attachments/assets/f226e310-6475-41d9-ac26-0067db63d1e3" />
+
 
 ### ❗Информация о пакетах 
 
@@ -34,7 +35,7 @@
 🟧 Доступ к Spamblock
 📜 Полный доступ.*
 
-<img width="1536" height="1024" alt="photo_2026-04-24_20-38-01" src="https://github.com/user-attachments/assets/f6dc9260-84bc-43f0-8287-5732ce209207" />
+<img width="1402" height="788" alt="обложка anarchyland" src="https://github.com/user-attachments/assets/bdabd038-0081-4e01-811f-7b1efbfb07a5" />
 
 
 # 🔥 ПОЧЕМУ СТОИТ ВЫБРАТЬ НАС?
